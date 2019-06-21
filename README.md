@@ -3,3 +3,5 @@
 <br>
 
 ![image](https://github.com/qlrrforever/BIFT-is-not-bitch/blob/master/iPhone%20X-XS%20%E2%80%93%201.png)
+
+![image](github.com/qlrrforever/BIFT-is-not-bitch/blob/master/画板%207%403x-100.jpg)
